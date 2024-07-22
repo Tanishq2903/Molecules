@@ -10,7 +10,6 @@ Access records, view marks, and communicate effortlessly.
 
 
 <br><br>
-[LinkedIn](https://www.linkedin.com/in/yogndr/)
 
 # About
 
